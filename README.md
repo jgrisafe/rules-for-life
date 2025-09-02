@@ -15,6 +15,6 @@
 13. Enjoy yourself. Have fun. We have no idea how or why we're even here.
 14. Avoid name calling, including to yourself.
 15. Never use labels or psychiatric diagnoses as weapons.
-16. Don’t expect anything from anyone. Nobody owes you anything, if you think they do, go back to number six.
+16. Don’t expect anything from anyone. Nobody owes you anything, if you think they do, go back to number 8.
 17. Only offer advice when asked for except for a small group of trusted best friends or family members you have complete honesty with and compassion for. You will know who.
 18. Inspire, don’t preach.
