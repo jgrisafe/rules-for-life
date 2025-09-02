@@ -9,7 +9,7 @@
 7. Be firm with your boundaries.
 8. Be honest about your intentions.
 9. Do not compromise your values in order to get what you want.
-10. Treat yourself like a project. Having compassion for your mistakes with a clear idea on how you wish to be behave the next time around.
+10. Treat yourself like a project. Having compassion for your mistakes with a clear idea on how you wish to behave the next time around.
 11. Love yourself unconditionally. Mistakes are to be learned from, not dwelled on.
 12. Stay present. Take it one day at a time. Pausing seldomly and briefly to learn from the past and plan for the future.
 13. Enjoy yourself. Have fun. We have no idea how or why we're even here.
